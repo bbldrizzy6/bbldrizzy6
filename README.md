@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bbldrizzy6
-- 👀 I’m interested in bbl drizzy drake
+- 👀 I’m interested in bbl drizzy
 - 🌱 I’m currently learning about bbls and drizzy
 - 💞️ I’m looking to collaborate on drizzy
 - 📫 How to reach me https://www.youtube.com/watch?v=tzh1aORvkxA
